@@ -12,7 +12,7 @@ Moodeng Coin (MOOD) is a unique cryptocurrency designed to connect the digital w
  - Hold 30,000,000 MOOD: Receive 1 Moodeng NFTs
  - Hold 100,000,000 MOOD: Receive 5 Moodeng NFTs
 
- Total purchases including referrals
+   Total purchases including referrals
 
 # Benefits of Holding
 Benefits of Holding Moodeng Coin Holding Moodeng Coin offers various benefits, including:
