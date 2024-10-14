@@ -34,6 +34,6 @@ Benefits of Holding Moodeng Coin Holding Moodeng Coin offers various benefits, i
 
 👨🏿‍🤝‍👨🏿Twitter : https://x.com/moodengcoin_co
 
-👨🏿‍🤝‍👨🏿Telegram Group : https://x.com/moodengcoin_co
+👨🏿‍🤝‍👨🏿Telegram Group : https://x.com/Moodengcoin_x
 
 🔒 Smart Contract : https://bscscan.com/token/0x032AaE745E24ef297E2A3b2835200fBDea594ed2
