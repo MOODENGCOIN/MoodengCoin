@@ -32,7 +32,7 @@ Benefits of Holding Moodeng Coin Holding Moodeng Coin offers various benefits, i
 
 📄 Whitepaper : https://moodengcoin.co/wp-content/uploads/2024/10/WhitePaper-With-roadmap-1.pdf
 
-👨🏿‍🤝‍👨🏿Twitter : https://x.com/moodengcoin_co
+👨🏿‍🤝‍👨🏿Twitter : https://x.com/Moodengcoin_x
 
 👨🏿‍🤝‍👨🏿Telegram Group : https://t.me/Moodengcoin_co
 
